@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Essilon
+- 👀 I’m interested in Video Games, Anime and programming
+- 🌱 I’m currently learning Computer Science, and Game Devolpment
+- 📫 you can reach me at yousufm4788@gmail.com
